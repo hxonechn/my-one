@@ -1,2 +1,1 @@
-# my-one
-This is my store
+i love china
